@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jairaj9
 - 👀 I’m interested in ... developing apps/games
-- 🌱 I’m currently learning in... 9std
+- 🌱 I’m currently learning in... 12std
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... jairaj_amin
 
